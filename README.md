@@ -7,4 +7,8 @@ as gejus
 
 tu gejus
 
+
 local change
+
+bet ne negras
+
