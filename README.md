@@ -4,7 +4,7 @@ negras yra gerai labai labai
 
 
 
-
+jukas kakljdalhd
 
 local change
 
